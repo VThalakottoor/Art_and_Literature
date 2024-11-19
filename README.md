@@ -1,1 +1,1 @@
-# For everyone who loves art, photography, and reading.
+# For everyone who loves reading.
